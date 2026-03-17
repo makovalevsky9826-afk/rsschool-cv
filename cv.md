@@ -2,7 +2,7 @@
 
 * Technical Support Specialist (B2B SaaS & Product Support)
 * Mogilev, Belarus | makovalevsky9826@gmail.com | +37544780222
-* LinkedIn: www.linkedin.com/in/maxim-kovalevsky
+* LinkedIn: www.linkedin.com/in/maxim-kovalevsky 
 # ABOUT ME
 Support professional with 4+ years in B2B SaaS and product support. Experienced in managing complex cases, mentoring colleagues, and driving workflow improvements. Skilled in aligning support operations with business goals, building effective processes, and ensuring high-quality customer experiences. Known for a structured approach, cross-team collaboration, and the ability to motivate and guide others.
 # CORE COMPETENCIES
